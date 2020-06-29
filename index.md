@@ -16,5 +16,5 @@ Journey before Destination
 > Honor is dead.
 > But I'll see what I can do.
 
-<img src="https://botanicaxu.tumblr.com/image/173771968044"/>
+Hier sollte ein Bild stehen, das schmeiße ich jetzt wieder raus...
 
