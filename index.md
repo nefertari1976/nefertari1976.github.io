@@ -8,3 +8,8 @@ Life before Death
 Strength before Weakness
 Journey before Destination
 
+## Character traits
+* depressed
+* radiant
+* strong
+
